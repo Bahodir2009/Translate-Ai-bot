@@ -1,1 +1,0 @@
-# Translate-Ai-bot
